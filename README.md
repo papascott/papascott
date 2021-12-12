@@ -1,1 +1,1 @@
-# My GitHub account has moved to @scotthansonde
+# My GitHub account has moved to [@scotthansonde](https://github.com/scotthansonde)
